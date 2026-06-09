@@ -1,3 +1,0 @@
-# ulv
-ulvuyya
-ulviyya
